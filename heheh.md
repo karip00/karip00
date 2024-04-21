@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning **ML and how to survive another day in this pathetic world xd**
 
-- 📫 How to reach me **siam.org018@gmail.com**
+- 📫 How to reach me? [idk why you'd want to] **siam.org018@gmail.com**
 
 
 <h3 align="left">Languages and Tools:</h3>
